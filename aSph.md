@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 14时27分34秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>新疆交建新疆基建项目爆发，单季业绩预告超预期</h3><br><p>东部地区率先实现高质量发展，人均GDP突破12万元。<br><br> | 来源：<code>www.zhuweiguoji.cn
+</code></p><br><br><h3>美联储降息后美元指数走弱，大宗商品价格迎来反弹</h3><br><p>游资知名席位联手买入赛力斯1.4亿，整车标的获资金追捧。<br><br> | 来源：<code>www.yuzt.cn
+</code></p><br><br><h3>北向资金大额增持美的集团，家电龙头外资持仓创历史新高</h3><br><p>国内在线旅游平台暑期订单破5亿，技术赋能提升预订效率。<br><br> | 来源：<code>www.dg-hhjx.cn
+</code></p><br><br><h3>全国房地产开发投资降幅收窄，市场预期逐步企稳</h3><br><p>养老金新进车载芯片龙头，布局车规级半导体赛道。<br><br> | 来源：<code>www.6gt8.cn
+</code></p><br><br><h3>通威股份低位反弹，光伏产业链盈利预期改善</h3><br><p>苹果AI服务正式上线，苹果产业链标的集体反弹。<br><br> | 来源：<code>www.gzsyd.cn
+</code></p><br><br><h3>紫光国微特种芯片优势：军工电子赛道的隐形冠军解析</h3><br><p>煤炭价格企稳回升，煤炭高股息标的集体上涨。<br><br> | 来源：<code>www.xinyucai.cn
+</code></p><br><br><h3>陕西煤业资源禀赋优势：煤炭龙头的业绩稳定性解析</h3><br><p>国内研学旅行市场规模破千亿，覆盖超5000万中小学生。<br><br> | 来源：<code>www.edubee.cn
+</code></p><br><br><h3>北向资金连续增持核电设备龙头，近1月持仓增幅超25%</h3><br><p>头部机构组团到访医美耗材龙头，新品获批进度超预期。<br><br> | 来源：<code>www.rlgps.cn
+</code></p><br><br><h3>全国居民人均体育消费支出同比增长15%，运动成为生活方式</h3><br><p>控股股东耗资2.8亿增持创新药龙头，核心管线临床进展获信心。<br><br> | 来源：<code>www.tlgsb.cn
+</code></p><br><br><h3>大股东耗资4.5亿增持碳化硅衬底龙头，助力6英寸产能扩张</h3><br><p>全国夜间文旅消费集聚区破200个，点亮城市夜经济。<br><br> | 来源：<code>www.btnrl.com
+</code></p><br><br><h3>海产品全产业链涨价，水产板块全面异动</h3><br><p>宝钢股份涨超3.1%，板材价格企稳回升。<br><br> | 来源：<code>www.le-service-divin.com
+</code></p><br><br><h3>桂林山水暑期游热度回升，漓江游船日均发船超200艘</h3><br><p>乳制品价格小幅上调，乳业龙头盈利边际改善。<br><br> | 来源：<code>www.zzwtest.com
+</code></p><br><br><h3>北向资金连续增持智能驾驶龙头，近1月持仓增幅超30%</h3><br><p>券商研究所扎堆调研AI芯片设计标的，大模型推理芯片流片成功。<br><br> | 来源：<code>www.cztxwl.cn
+</code></p><br><br><h3>上海建工涨超2.9%，上海城市更新订单爆发</h3><br><p>头部机构组团到访风电轴承龙头，大兆瓦轴承市占率提升。<br><br> | 来源：<code>www.zzlxgg.com.cn
+</code></p><br><br><h3>闻泰科技异动拉升4.9%，半导体ODM业务盈利修复</h3><br><p>工业互联网平台落地，工业数字化标的全线拉升。<br><br> | 来源：<code>www.archicourse.cn
+</code></p><br><br><h3>全国徒步大会覆盖300城，参与人次破千万</h3><br><p>生物育种企业开启新股申购，转基因商业化落地节奏领先。<br><br> | 来源：<code>www.geeksuper.cn
+</code></p><br><br><h3>锂价连续反弹三个月，锂矿板块集体走强</h3><br><p>房贷利率动态调整机制优化，重点城市房贷利率进一步下行。<br><br> | 来源：<code>www.husini.cn
+</code></p><br><br><h3>澜起科技异动拉升4.3%，内存接口芯片份额提升</h3><br><p>天邦食品涨超4.1%，养殖业务减亏效果显著。<br><br> | 来源：<code>www.ousche.cn
+</code></p><br><br><h3>美联储降息周期开启，黄金珠宝板块迎来趋势性行情</h3><br><p>中原高速异动拉升2.2%，河南路网业务边际改善。<br><br> | 来源：<code>www.cnjinrong.cn
+</code></p><br><br><h3>荷兰经济避免衰退，服务业支撑经济稳定增长</h3><br><p>湖南投资涨超2.1%，长沙路桥业务持续向好。<br><br> | 来源：<code>www.edu633.cn
