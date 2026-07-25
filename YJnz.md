@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 14时31分36秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>北向资金大额增持中兴通讯，通信龙头外资持仓环比大增</h3><br><p>北向资金连续加仓海康威视，AI安防龙头获外资持续布局。<br><br> | 来源：<code>mlxtf.cn
+</code></p><br><br><h3>钛白粉开启新一轮涨价潮，全行业提价覆盖海内外市场</h3><br><p>美联储降息周期开启，黄金珠宝板块迎来趋势性行情。<br><br> | 来源：<code>tupianqiang.com
+</code></p><br><br><h3>中国网球选手首次夺得大满贯单打冠军，创造历史突破</h3><br><p>大股东耗资3.8亿增持钙钛矿设备标的，助力核心设备研发。<br><br> | 来源：<code>hsronghua.com
+</code></p><br><br><h3>全国红树林面积增至3万公顷，成为海洋生态保护标杆</h3><br><p>药明康德CXO全球布局：全球医药研发外包的龙头价值。<br><br> | 来源：<code>dygs2b.com
+</code></p><br><br><h3>北向资金单日扫货五粮液2.3亿，白酒龙头获外资持续流入</h3><br><p>央行下调MLF利率10BP，货币政策宽松力度加大。<br><br> | 来源：<code>s9tattoo.com
+</code></p><br><br><h3>全国千岛湖水质保持Ⅰ类，成为重要饮用水源地标杆</h3><br><p>外资单日扫货招商银行10亿，银行龙头外资持仓稳步提升。<br><br> | 来源：<code>yilianyoumeng.com
+</code></p><br><br><h3>高股息板块持续受宠：银行、保险、煤炭的配置价值分析</h3><br><p>全国南水北调沿线生态廊道建成，水质稳定保持Ⅱ类。<br><br> | 来源：<code>www.zhongyichufang.cn
+</code></p><br><br><h3>上半年全国文化产业营收同比增长14%，文旅融合加速</h3><br><p>以色列经济逐步复苏，高科技产业重回增长轨道。<br><br> | 来源：<code>www.muzhien.cn
+</code></p><br><br><h3>全国农村人居环境整治提升，生活垃圾无害化处理率达97%</h3><br><p>美的集团创年内新高，多头排列下的趋势延续性。<br><br> | 来源：<code>www.jiezhishan.cn
+</code></p><br><br><h3>五粮液品牌价值分析：浓香型白酒龙头的估值逻辑</h3><br><p>国产大模型日活用户破2亿，覆盖办公、教育、医疗全场景。<br><br> | 来源：<code>www.qinjin365.cn
+</code></p><br><br><h3>北向资金单日买入三安光电9000万，LED龙头获外资持续流入</h3><br><p>山西汾酒涨超5.1%，青花系列全国化推进加速。<br><br> | 来源：<code>www.siqiyes.cn
+</code></p><br><br><h3>大秦铁路异动拉升2.8%，煤炭运输量稳步提升</h3><br><p>煤炭价格企稳回升，煤炭高股息标的集体上涨。<br><br> | 来源：<code>www.siqixue.cn
+</code></p><br><br><h3>广汽集团涨超4.8%，埃安品牌月销破5万</h3><br><p>美联储开启降息周期，人民币汇率迎来趋势性升值。<br><br> | 来源：<code>www.cunyinbao.cn
+</code></p><br><br><h3>养老金入市比例提升，养老金重仓标的走强</h3><br><p>美联储降息周期开启，北向资金单周净流入超300亿。<br><br> | 来源：<code>www.iamz.cn
+</code></p><br><br><h3>社保基金现身镁合金龙头，汽车轻量化订单同比翻倍</h3><br><p>炒股最难的不是买对，而是在波动里守住正确的持仓。<br><br> | 来源：<code>www.yifanwu.cn
+</code></p><br><br><h3>10年期国债收益率下行至历史低位，高股息资产配置价值凸显</h3><br><p>北向资金大额扫货天合光能7100万，光伏龙头获外资流入。<br><br> | 来源：<code>www.michaelyang.cn
+</code></p><br><br><h3>武汉长江灯光秀暑期上新，吸引超千万游客观赏打卡</h3><br><p>机构专用席位净买入容百科技8800万，高镍正极龙头加仓。<br><br> | 来源：<code>www.bengcuan.cn
+</code></p><br><br><h3>超240家机构到访氢能燃料电池标的，商用车推广数据公开</h3><br><p>百亿级机构组团到访低空经济龙头，低空试飞进展获披露。<br><br> | 来源：<code>www.zn-edu.cn
+</code></p><br><br><h3>全国急救培训覆盖超亿人次，公共场所AED设备配置率达90%</h3><br><p>全国湿地保护率达55%，新增国家湿地公园超百个。<br><br> | 来源：<code>www.imrok.com.cn
+</code></p><br><br><h3>复合肥价格上调7%，化肥全产业链盈利优化</h3><br><p>通威股份低位反弹，光伏产业链盈利预期改善。<br><br> | 来源：<code>www.shutaotc.cn
