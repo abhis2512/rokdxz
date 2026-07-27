@@ -1,0 +1,21 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月27日 20时20分02秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>全国学生体质健康达标率提升至92%，青少年身体素质增强</h3><br><p>AI语音合成技术突破，克隆声音仅需3秒样本。<br><br> | 来源：<code>www.79lr.com
+</code></p><br><br><h3>全球元宇宙相关产业规模突破2万亿美元，应用场景拓展</h3><br><p>养老金新进PCB龙头，布局AI服务器硬件赛道。<br><br> | 来源：<code>www.qzu.zj.cn
+</code></p><br><br><h3>德国工业产出环比增长1.2%，制造业显现复苏迹象</h3><br><p>中国马术队首次获得亚运会金牌，马术运动实现零的突破。<br><br> | 来源：<code>www.tpyqczl.com
+</code></p><br><br><h3>AIGC内容监管细则出台，AI内容标的集体拉升</h3><br><p>存款利率下调推动理财收益率下行，权益基金发行回暖。<br><br> | 来源：<code>www.trqgzc.com
+</code></p><br><br><h3>QFII集中调研海上风电标的，深远海项目订单引热议</h3><br><p>全国船舶排放控制区扩大，海运污染减排成效突出。<br><br> | 来源：<code>www.jyylj.com
+</code></p><br><br><h3>养老金现身光刻胶标的，ArF胶通过客户验证进度超预期</h3><br><p>全国健身气功交流大赛举办，覆盖超百万中老年爱好者。<br><br> | 来源：<code>www.chtea.ac.cn
+</code></p><br><br><h3>动力电池级碳酸锂报价单日上涨2000元/吨，产业链回暖信号显现</h3><br><p>实控人溢价15%增持碳纤维企业，传递长期发展信心。<br><br> | 来源：<code>www.idmcinc.com
+</code></p><br><br><h3>中国电建新能源电站运营：电力工程龙头的第二成长曲线</h3><br><p>超210家机构到访AI安防龙头，海外政府订单同比大增。<br><br> | 来源：<code>www.azi-cbt.com
+</code></p><br><br><h3>北方稀土突破前期平台，短线弹性有望释放</h3><br><p>恒瑞医药创新药管线：国内创新药龙头的研发投入回报。<br><br> | 来源：<code>www.huihuabang.com
+</code></p><br><br><h3>企业中长期贷款增速回升，宽信用效果逐步显现</h3><br><p>国内高端旅游产品走俏，定制游订单同比增长90%。<br><br> | 来源：<code>www.jieruit.com
+</code></p><br><br><h3>宇通客车全球客车龙头优势：新能源客车的全球份额扩张</h3><br><p>央行下调MLF利率10BP，货币政策宽松力度加大。<br><br> | 来源：<code>www.bjgengke.com
+</code></p><br><br><h3>存款利率市场化改革深化，银行负债成本持续优化</h3><br><p>中国女子足球闯入世界杯四强，创造历史最佳战绩。<br><br> | 来源：<code>www.kayhaerland.com
+</code></p><br><br><h3>电感产品价格上涨3%，电子全产业链盈利优化</h3><br><p>种业振兴行动方案落地，种业标的全线异动。<br><br> | 来源：<code>www.gzly118.com
+</code></p><br><br><h3>外资机构集中调研跨境支付标的，海外结算规模环比大增</h3><br><p>大消费板块估值修复：白酒、家电、医药的布局机会对比。<br><br> | 来源：<code>www.gntbz.cn
+</code></p><br><br><h3>海康威视海外市场拓展：AI安防产品的全球份额提升</h3><br><p>全国国家森林公园数量增至1000个，生态旅游蓬勃发展。<br><br> | 来源：<code>www.fm1033.cn
+</code></p><br><br><h3>紫光国微异动拉升5.6%，特种芯片需求持续高增</h3><br><p>央行逆回购操作利率下调，短期资金面维持宽松。<br><br> | 来源：<code>www.mmju.cn
+</code></p><br><br><h3>产业资本连续增持储能温控龙头，产业链上下游协同布局</h3><br><p>许继电气异动拉升4.2%，特高压订单持续落地。<br><br> | 来源：<code>www.jbhn.cn
+</code></p><br><br><h3>东方雨虹建材需求回暖，前三季度业绩预增超25%</h3><br><p>泰胜风能涨超5.0%，海外风电塔架出口爆发。<br><br> | 来源：<code>www.pinlie.cn
+</code></p><br><br><h3>中拉经贸合作论坛举办，达成超200亿美元合作协议</h3><br><p>钾肥价格连续上涨10%，钾肥板块盈利弹性释放。<br><br> | 来源：<code>www.ituijie.com
+</code></p><br><br><h3>中国女子跆拳道队世锦赛斩获4金，奥运备战状态出色</h3><br><p>国内AI人才培养体系完善，高校新增AI相关专业超千个。<br><br> | 来源：<code>www.mc53.cn
+</code></p><br><br><h3>邮轮旅游市场重启，上半年国际邮轮订单同比增长300%</h3><br><p>全国文旅智慧平台全覆盖，实现线上预约、导览、投诉一站式服务。<br><br> | 来源：<code>www.szhdly.com.cn
