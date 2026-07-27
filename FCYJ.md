@@ -1,0 +1,21 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月27日 20时19分57秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>别被短期波动洗下车：核心资产的价值需要时间兑现</h3><br><p>大北农异动拉升3.7%，种业业务贡献新增量。<br><br> | 来源：<code>www.mmju.cn
+</code></p><br><br><h3>全国国家公园数量增至15个，保护面积超23万平方公里</h3><br><p>实控人溢价15%增持碳纤维企业，传递长期发展信心。<br><br> | 来源：<code>www.jbhn.cn
+</code></p><br><br><h3>全国首套房住房贷款"认房不认贷"政策全面落地</h3><br><p>高管团队集体调研后增持冷链物流标的，合计增持超8000万。<br><br> | 来源：<code>www.pinlie.cn
+</code></p><br><br><h3>双汇发展肉制品龙头优势：屠宰+肉制品的协同价值</h3><br><p>登海种业玉米种子优势：国内玉米种子赛道的龙头价值。<br><br> | 来源：<code>www.ituijie.com
+</code></p><br><br><h3>北京马拉松参赛人数突破3万，全球顶级赛事影响力持续扩大</h3><br><p>中国保龄球队亚运会夺得金牌，小众项目实现历史性突破。<br><br> | 来源：<code>www.mc53.cn
+</code></p><br><br><h3>全国非遗工坊超5000家，带动百万群众就业增收</h3><br><p>全球跨境直接投资回升至1.5万亿美元，流向绿色产业。<br><br> | 来源：<code>www.szhdly.com.cn
+</code></p><br><br><h3>浪潮信息高位震荡，算力主线的分歧与机会解析</h3><br><p>全国小微企业贷款余额突破60万亿元，融资成本进一步下降。<br><br> | 来源：<code>www.88684.org
+</code></p><br><br><h3>跨境支付龙头登陆港股，海外结算规模年增速超80%</h3><br><p>全国国民体质达标率达90%，国民身体素质稳步提升。<br><br> | 来源：<code>www.fjzp.net
+</code></p><br><br><h3>小康股份涨超7.7%，新能源汽车业务盈利修复</h3><br><p>国产AI芯片算力突破256TOPS，支撑大模型高效运行。<br><br> | 来源：<code>www.hanchaofan.com
+</code></p><br><br><h3>上半年全国锂电池出口同比增长32%，新能源产品出口亮眼</h3><br><p>登海种业放量上涨4.0%，玉米种子需求持续向好。<br><br> | 来源：<code>www.yinxi.net
+</code></p><br><br><h3>国内大模型企业估值破万亿，30家企业跻身独角兽行列</h3><br><p>全国中华秋沙鸭种群数量突破3000只，河流生态健康标志。<br><br> | 来源：<code>www.jogosdefutebol10.com
+</code></p><br><br><h3>中国电建异动拉升3.3%，新能源电站装机量高增</h3><br><p>特高压工程集中获批，电网设备板块全线异动。<br><br> | 来源：<code>www.nimendong.com
+</code></p><br><br><h3>全国徒步露营大会举办，串联百公里山野路线吸引数万爱好者</h3><br><p>招商银行零售银行优势：高ROE背后的经营质量解析。<br><br> | 来源：<code>www.captainandthechief.com
+</code></p><br><br><h3>百亿私募组团到访人形机器人标的，核心零部件产能引关注</h3><br><p>百亿私募组团调研碳纤维企业，风电领域应用占比突破60%。<br><br> | 来源：<code>www.szdesign-art.com
+</code></p><br><br><h3>鱼类产品价格上调10%，渔业板块迎来行情</h3><br><p>降准释放资金定向支持基建，基建板块迎来流动性利好。<br><br> | 来源：<code>www.vetb-us.com
+</code></p><br><br><h3>多地推出稳外贸新政，出口退税速度压缩至3个工作日内</h3><br><p>东方电气风电设备订单爆发，前三季度业绩预增超35%。<br><br> | 来源：<code>www.winfae.com
+</code></p><br><br><h3>企业贷款利率创历史新低，制造业投资意愿有望回升</h3><br><p>北向资金连续5日净流入，降息后外资持续加仓核心资产。<br><br> | 来源：<code>www.hmmanhua.com
+</code></p><br><br><h3>国产游戏上半年出海营收突破80亿美元，文化输出能力增强</h3><br><p>头部机构组团到访创新药龙头，核心管线临床三期数据披露。<br><br> | 来源：<code>www.hebccpi.com
+</code></p><br><br><h3>全国长江十年禁渔成效显著，水生生物资源逐步恢复</h3><br><p>宇通客车全球客车龙头优势：新能源客车的全球份额扩张。<br><br> | 来源：<code>www.cncbsc.com
+</code></p><br><br><h3>全球气候变化大会预备会召开，各国提交新减排承诺</h3><br><p>知名私募调研低空飞行器标的，eVTOL适航认证进度披露。<br><br> | 来源：<code>www.yinxi.net
+</code></p><br><br><h3>水利工程建设规划，水利基建板块走强</h3><br><p>外资机构集中调研种业龙头，转基因商业化落地节奏披露。<br><br> | 来源：<code>www.jogosdefutebol10.com
