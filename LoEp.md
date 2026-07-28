@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月29日 02时54分45秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>教育部新增37个高校专业，聚焦人工智能、生物医药等前沿领域</h3><br><p>全球跨境直接投资回升至1.5万亿美元，流向绿色产业。<br><br> | 来源：<code>https://renqidonghua.com.cn
+</code></p><br><br><h3>中国女子摔跤队世锦赛斩获3金，奥运备战实力强劲</h3><br><p>北向资金举牌人形机器人标的，持股比例首次突破5%红线。<br><br> | 来源：<code>https://renqilieren.com.cn
+</code></p><br><br><h3>长城汽车异动拉升5.9%，坦克系列销量持续高增</h3><br><p>云南泼水节暑期活动重启，单日参与游客突破50万人次。<br><br> | 来源：<code>https://renqilierenmanhua.com.cn
+</code></p><br><br><h3>阿里云通义千问算力集群扩容，支撑万亿级参数大模型训练</h3><br><p>软件企业所得税优惠延续，国产软件板块异动。<br><br> | 来源：<code>https://renqiwuliaodonghua.com.cn
+</code></p><br><br><h3>养老金现身特高压龙头调研，海外工程落地节奏引热议</h3><br><p>创新药医保谈判落地，创新药板块迎来情绪修复。<br><br> | 来源：<code>https://renren-chucai-official.com
+</code></p><br><br><h3>中国女子跆拳道队世锦赛斩获4金，奥运备战状态出色</h3><br><p>武汉马拉松开跑，2.5万跑者穿越长江大桥刷新赛事纪录。<br><br> | 来源：<code>https://ri-han-wuma.com.cn
+</code></p><br><br><h3>故宫博物院暑期门票秒空，日均接待游客突破8万人次</h3><br><p>安防大模型落地全国，异常事件识别响应速度提升至毫秒级。<br><br> | 来源：<code>https://ri-han-zaixian.com.cn
+</code></p><br><br><h3>北交所改革政策落地，北交所概念股集体走强</h3><br><p>中国男子110米栏小将跑出12秒90，接班刘翔创造新历史。<br><br> | 来源：<code>https://ri-han-zhongwenzimu.com.cn
+</code></p><br><br><h3>宠物食品企业开启新股申购，海外自主品牌占比突破40%</h3><br><p>恒瑞医药站稳60日线，中期趋势逐步向好。<br><br> | 来源：<code>https://ri-han.com.cn
+</code></p><br><br><h3>MLCC价格单月上涨5%，电容龙头盈利弹性释放</h3><br><p>海外资管组团调研光伏支架标的，跟踪支架海外渗透率提升。<br><br> | 来源：<code>https://ri-hanjingpin.cn
+</code></p><br><br><h3>亿纬锂能海外布局：规避贸易壁垒的产能建设逻辑</h3><br><p>容百科技高镍正极技术：锂电高镍化趋势下的龙头受益。<br><br> | 来源：<code>https://ri-hanjingpin.com.cn
+</code></p><br><br><h3>四川路桥一带一路订单落地，前三季度业绩预增超40%</h3><br><p>青海湖暑期环湖游热度飙升，自驾游客占比超80%。<br><br> | 来源：<code>https://ri-hanmianfeizaixianguankan.com.cn
+</code></p><br><br><h3>北向资金连续加仓海康威视，AI安防龙头获外资持续布局</h3><br><p>调味品开启集体涨价，食品板块盈利迎来修复。<br><br> | 来源：<code>https://ri-hanoumei.com.cn
+</code></p><br><br><h3>基金公司集体到访氢能龙头，燃料电池车推广进度超预期</h3><br><p>全球人工智能产业规模突破5万亿美元，中美占据主导地位。<br><br> | 来源：<code>https://ri-hanshipin.com.cn
+</code></p><br><br><h3>游资知名席位联手买入中际旭创5亿，光模块龙头获热炒</h3><br><p>新希望异动拉升3.9%，生猪出栏量持续高增。<br><br> | 来源：<code>https://ri-hanwuma.com.cn
+</code></p><br><br><h3>LPR非对称下调，银行净息差压力边际缓解</h3><br><p>大股东耗资6亿增持半导体材料龙头，彰显国产替代信心。<br><br> | 来源：<code>https://ri-hanzaixian.com.cn
+</code></p><br><br><h3>知名私募大手笔增持储能电池标的，海外户储订单获资本布局</h3><br><p>海康威视W底形态确立，底部反转信号明确。<br><br> | 来源：<code>https://ri-hanzaixianguankan.com.cn
+</code></p><br><br><h3>中国象棋队世锦赛全部夺冠，传统棋类运动长盛不衰</h3><br><p>瑞士经济温和增长，金融和高端制造业表现稳定。<br><br> | 来源：<code>https://ri-hanzhongwenzimu.com.cn
+</code></p><br><br><h3>复合肥价格上调7%，化肥全产业链盈利优化</h3><br><p>民用无人机管理新规，无人机产业链全线走强。<br><br> | 来源：<code>https://riben-chengren-shipin.com.cn
+</code></p><br><br><h3>全国农村人居环境整治提升，生活垃圾无害化处理率达97%</h3><br><p>中国轮滑队世锦赛包揽全部金牌，优势项目持续领跑世界。<br><br> | 来源：<code>https://riben-yiji-bu-ka-yier-qu.com.cn
